@@ -1,0 +1,2 @@
+# 4ba2c26c-6381-4869-86d0-801a38e59468-hero-3
+Hero section variant 3 for 4ba2c26c-6381-4869-86d0-801a38e59468
